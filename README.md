@@ -14,9 +14,7 @@
 
 方法1:邮箱发送任意内容邮件可获取最新地址
 
-邮箱1： 51cgfun@gmail.com
-
-邮箱2： 51cgfun@pm.me
+邮箱1： dycgweb@gmail.com
 
 方法3:关注第一吃瓜官方推特 https://x.com/dycgw_com
 
