@@ -1,12 +1,8 @@
 第一吃瓜网 https://dycg1.com 朝阳群众聚集地，带你吃最新最热的瓜！
 
-第一吃瓜官网最新地址： https://ah.owdnggrh.xyz （禁止直接点击访问）请复制链接粘贴到浏览器
+第一吃瓜官网最新地址： https://d1cg.lzgbtdwd.top （禁止直接点击访问）请复制链接粘贴到浏览器
 
 第一吃瓜网永久地址（需科学⬆️上网）  https://dycgweb.com （禁止直接点击访问）请复制链接粘贴到浏览器
-
-备用地址1： https://basket.owdnggrh.cc/ （禁止直接点击访问）请复制链接粘贴到浏览器
-
-备用地址2： https://anymore.owdnggrh.cc/ （禁止直接点击访问）请复制链接粘贴到浏览器
 
 失联后如何找到回家的路：
 
@@ -18,8 +14,6 @@
 方法3:关注第一吃瓜官方推特 https://x.com/dycgw_com
 
 方法4:加入第一吃瓜官方频道、用户群组
-
-第一吃瓜官方频道（Telegram） https://t.me/dycgw
 
 第一吃瓜官方官方用户群（Telegram）https://t.me/d1cgw
 
